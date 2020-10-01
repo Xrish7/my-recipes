@@ -1,0 +1,1 @@
+mix the eggs,sugar,milk and butter. then add the vannila extract. heat your pan. grease your pan. dip the bread and soak it lightly. fry it both sides and boom. there you go. your french toast is ready.
